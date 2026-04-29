@@ -1,4 +1,4 @@
-## AutoQA Platform Lead | AI & Cloud Native Engineer
+## AI & Cloud Native Engineer
 -------------------------------------------------------------------------------
 ### Ashwin Yenigalla | yenigallaashwin@gmail.com | https://www.linkedin.com/in/ashwinyenigalla/
 --------------------------------------------------------------------------------
