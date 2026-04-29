@@ -1,4 +1,4 @@
-## AI & Cloud Native Engineer
+## Cloud Native Lead AI Engineer
 -------------------------------------------------------------------------------
 ### Ashwin Yenigalla | yenigallaashwin@gmail.com | https://www.linkedin.com/in/ashwinyenigalla/
 --------------------------------------------------------------------------------
